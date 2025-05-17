@@ -106,10 +106,8 @@ You can also chat with us directly via the **WhatsApp button** on our website.
 
 ## 🌍 Follow Us
 
-- [Facebook](https://facebook.com/igosub)  
-- [Twitter (X)](https://twitter.com/igosub)  
-- [Instagram](https://instagram.com/igosub)  
-- [LinkedIn](https://linkedin.com/company/igosub)
+- [Tiktok ](https://www.tiktok.com/@tennetteam0)  
+- [Instagram](https://instagram.com/tennetteam0)  
 
 ---
 
